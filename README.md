@@ -1,1 +1,0 @@
-# Advanced-School-Management-System-main
